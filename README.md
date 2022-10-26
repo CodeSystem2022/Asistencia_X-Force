@@ -3,13 +3,13 @@ Aqui se encontraran los repositorios de asistencia del mes de Octubre del grupo 
 
 
 
-Grupo:
+GRUPO:
 
 X-Force
 
 
 
-Integrantes:
+INTEGRANTES:
 
 Gonzalo Cuevas
 
